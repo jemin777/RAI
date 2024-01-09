@@ -8,7 +8,7 @@ ABOUT RAI(Remote Advanced Intelligence)
 
 Why AI(Artifical Intelligence) is not a good or worst technology? What technology should be used to replace AI(Artifical Intelligence) technology?
 
-In the Last chapter of  the  bibble (Revelation 13) says
+In the Last chapter of  the  bibble (Revelation 13:15) says
 that Robot is  nothing but image of the beast. 
 
 According to bibble book of Revelation...
