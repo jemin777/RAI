@@ -13,7 +13,7 @@ that Robot is  nothing but image of the beast.
 
 According to bibble book of Revelation...
 
-"Revelation 15: The second beast (known as Antichrist-666) was given power to give breath to the image(robot)  of the first beast,
+"Revelation 13:15: The second beast (known as Antichrist-666) was given power to give breath to the image(robot)  of the first beast,
  so that the image(robot)  could speak and cause all who refused to worship the image(robot) to be killed. 
 It also forced all people, great and small, rich and poor, free and slave, to receive a mark (this mark is the Today biotechnology which is biochip)
  on their right hands or on their foreheads,  17 so that they could not buy or sell unless they had the mark, 
