@@ -41,5 +41,5 @@ It also forced all people, great and small, rich and poor, free and slave, to re
  "We should safegaurd our lives from evil powers and dangers at computer field"
  - Wilmix Jemin j.
  
- Note : Even Elonmusk,So many righteous people also dislike Artificial Intellignece..
+ Note : Even So many righteous people also dislike Artificial Intellignece..
  
