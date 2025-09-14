@@ -18,15 +18,15 @@ According to bibble book of Revelation...
 It also forced all people, great and small, rich and poor, free and slave, to receive a mark (this mark is the Today biotechnology which is biochip)
  on their right hands or on their foreheads,  17 so that they could not buy or sell unless they had the mark, 
  which is the name of the beast or the number of its name.18 This calls for wisdom. Let the person who has insight calculate the number of the beast, 
- for it is the number of a man.[e] That number is 666".Now Robotics is the part of  Artificial Intelligence. So we can say AI(Artificial Intelligence)
+ for it is the number of a man.[e] That number is 666".So we can say robots.
  is the most danger technology in our future. 
  
  This Data science and  machine Learning is noting  but mathematics.
  So only Data science , machine Learning is  good. If we trust in chatbots , chatbots belong to AI technology,there
  is  a chance to  steal the money from your bank account. So due to this demerits ,
- RAI(Remote Advanced Intelligence) is  followed to replace AI (Artificial Intelligence).
+ RAI(Remote Advanced Intelligence) is  followed to replace robots.
  So RAI is a new concept invented by Wilmix jemin j at year 2022.This technology will replace
- Artificial Intelligence and Safegaurd all the users from account stealing,and dangers.
+robots and Safegaurd all the users from account stealing,and dangers.
  And this RAI will overtake antichrist technology(robotics) in the future..
  
  
@@ -41,5 +41,5 @@ It also forced all people, great and small, rich and poor, free and slave, to re
  "We should safegaurd our lives from evil powers and dangers at computer field"
  - Wilmix Jemin j.
  
- Note : Even So many righteous people also dislike Artificial Intellignece..
+ Note : Even So many righteous people also dislike Robots.
  
